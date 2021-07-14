@@ -1,7 +1,7 @@
 # Shop-mini-weapon-
 Acheter des armes légères (Pmenu)
 
-Preview https://streamable.com/rvhyoa
+Preview: https://streamable.com/rvhyoa
 
 
 
