@@ -1,4 +1,4 @@
-# Shop illegal
+# Shop des armes légères (illegal)
 Acheter des armes légères (Pmenu)
 
 Preview: https://streamable.com/rvhyoa
