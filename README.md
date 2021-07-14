@@ -12,7 +12,7 @@ Preview https://streamable.com/rvhyoa
 
 
 
-NOTE: C'est ESX et J'ai :slight_smile: couper la vidéo car elle est trop longue
+NOTE: C'est ESX et J'ai :slight_smile: couper la vidéo car elle est trop longue ----et tu peux change les positions---
 
 
 
