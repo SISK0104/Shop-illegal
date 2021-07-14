@@ -1,4 +1,4 @@
-# Shop-mini-weapon-
+# Shop illegal
 Acheter des armes légères (Pmenu)
 
 Preview: https://streamable.com/rvhyoa
