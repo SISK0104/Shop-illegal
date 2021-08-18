@@ -21,7 +21,7 @@ NOTE: C'est ESX et J'ai couper la vidéo car elle est trop longue ----et tu peux
 
 
 
-Si tu veux quelque script mon ds== Sisko#0259
+Si tu veux quelque script vOILA mon ds== Sisko#0259
 
 
 
